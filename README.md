@@ -1,1 +1,1 @@
-# Recogida de aceitunas-Carlos
+# Recogida de aceitunas - Saúl y Carlos
